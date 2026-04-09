@@ -1,1 +1,1 @@
-cor
+corinthians
